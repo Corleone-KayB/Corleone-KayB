@@ -40,4 +40,4 @@ the application server.
 ---
 
 📍 Kigali, Rwanda · 🌍 Remote-ready (UTC+2) · 💼 **Open to contract and remote roles**<br>
-📧 kabeh0@outlook.com
+📧 kabeh0@outlook.com, rogerkabeho@gmail.com
